@@ -17,4 +17,4 @@ Configura todo a tu gusto y inicia tu bot con el .bat y luego invitalo a tu serv
 # No me hago responsable del mal uso de este bot
 
 # Creditos
-No encontre nada xd
+PandaTjuuhhh!#2424 y Jochem_Legend274112
